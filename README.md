@@ -1,6 +1,5 @@
 <img align="left" src=https://github.com/sournoxious/sournoxious/blob/4ac921efbd6fa2f4acb5fd6cab62bbbe9d030a24/Untitled2642_20261027235924.PNG alt="hii" width="380"/>
 <br>
-
 <p align="center"> <img src=https://github.com/sournoxious/sournoxious/blob/4ac921efbd6fa2f4acb5fd6cab62bbbe9d030a24/Untitled2637_20261028000007.PNG width="370">  </p>
 <br>
 <p align="center"> $\color{#ffaca9}{You}$ $\color{#98c7aa}{think}$ $\color{#ffe68a}{Im}$ $\color{#ffaca9}{pretty}$ $\color{#98c7aa}{?}$
