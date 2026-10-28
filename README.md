@@ -11,3 +11,12 @@ $\color{#f0ffbc}{Then}$ $\color{#f0ffbc}{put}$ $\color{#f0ffbc}{me}$ $\color{#f0
 
 
 <p align="center"> <a href="https://soursstuff.straw.page">s𝗍rᥲᥕ⍴ᥲgᥱ</a> <img src=https://github.com/sournoxious/sournoxious/blob/ce6bd1a389a215857c5374449a43f0e8af87a2c2/cute.gif> <a href="https://pronouns.cc/@soursourstuff">⍴rᥒs.ᥴᥴ</a> </p>
+<br>
+<br>
+<details <p align="center">
+<summary> </summary>
+<br>
+c+h always encouraged unless my name says "dni unless (_)" or something along the lines of that!
+<br>
+make sure to follow my main if u follow this account plpsls... I follow back on my main as much as I can!
+</details>
