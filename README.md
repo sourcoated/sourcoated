@@ -16,7 +16,8 @@ $\color{#f0ffbc}{Then}$ $\color{#f0ffbc}{put}$ $\color{#f0ffbc}{me}$ $\color{#f0
 <details <p align="center">
 <summary> </summary>
 <br>
-c+h always encouraged unless my name says "dni unless (_)" or something along the lines of that!
+ᥴ+һ ᥲᥣᥕᥲᥡs ᥱᥒᥴ᥆ᥙrᥲgᥱძ ᥙᥒᥣᥱss mᥡ ᥒᥲmᥱ sᥲᥡs "ძᥒі ᥙᥒᥣᥱss (_)" ᥆r s᥆mᥱ𝗍һіᥒg ᥲᥣ᥆ᥒg 𝗍һᥱ ᥣіᥒᥱs ᥆𝖿 𝗍һᥲ𝗍!
 <br>
-make sure to follow my main if u follow this account plpsls... I follow back on my main as much as I can!
+<br>
+mᥲkᥱ sᥙrᥱ 𝗍᥆ 𝖿᥆ᥣᥣ᥆ᥕ mᥡ mᥲіᥒ і𝖿 ᥙ 𝖿᥆ᥣᥣ᥆ᥕ 𝗍һіs ᥲᥴᥴ᥆ᥙᥒ𝗍 ⍴ᥣ⍴sᥣs... і 𝖿᥆ᥣᥣ᥆ᥕ ᑲᥲᥴk ᥆ᥒ mᥡ mᥲіᥒ ᥲs mᥙᥴһ ᥲs і ᥴᥲᥒ!
 </details>
