@@ -1,4 +1,4 @@
-<img align="left" src= alt="hii" width="420"/>
+<img align="left" src=https://github.com/sournoxious/zam/blob/7d285cafd050ce732d7104fcc01ae2603060b285/Untitled2642_20261027222644.PNG alt="hii" width="420"/>
 <br>
 <p align="center"> <img src=https://github.com/sournoxious/zam/blob/7f12eccea2471b6887cf83e0a38c317f2cc5948c/Untitled2637_20261027225143.PNG width="370">  </p>
 <p align="center"> <a href="https://soursstuff.straw.page">s𝗍rᥲᥕ⍴ᥲgᥱ</a> <img src=https://github.com/mysourheart/mysourheart/blob/69ee9496397d8120d8009cb980c7b4722519c9c3/mono152.webp> <a href="https://pronouns.cc/@soursourstuff">⍴rᥒs.ᥴᥴ</a> </p>
