@@ -1,4 +1,4 @@
-<img align="left" src=https://github.com/sournoxious/sournoxious/blob/4ac921efbd6fa2f4acb5fd6cab62bbbe9d030a24/Untitled2642_20261027235924.PNG alt="hii" width="420"/>
+<img align="left" src=https://github.com/sournoxious/sournoxious/blob/4ac921efbd6fa2f4acb5fd6cab62bbbe9d030a24/Untitled2642_20261027235924.PNG alt="hii" width="400"/>
 <br>
 <p align="center"> <img src=https://github.com/sournoxious/sournoxious/blob/4ac921efbd6fa2f4acb5fd6cab62bbbe9d030a24/Untitled2637_20261028000007.PNG width="370">  </p>
 
