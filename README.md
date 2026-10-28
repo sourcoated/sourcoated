@@ -9,4 +9,4 @@ $\color{#f0ffbc}{Then}$ $\color{#f0ffbc}{put}$ $\color{#f0ffbc}{me}$ $\color{#f0
 <p align="center"> <img src=https://github.com/sournoxious/sournoxious/blob/4ac921efbd6fa2f4acb5fd6cab62bbbe9d030a24/Untitled2637_20261028000032.PNG width="250">
 
 
-<p align="center"> <a href="https://soursstuff.straw.page">s𝗍rᥲᥕ⍴ᥲgᥱ</a> <img src=https://github.com/mysourheart/mysourheart/blob/69ee9496397d8120d8009cb980c7b4722519c9c3/mono152.webp> <a href="https://pronouns.cc/@soursourstuff">⍴rᥒs.ᥴᥴ</a> </p>
+<p align="center"> <a href="https://soursstuff.straw.page">s𝗍rᥲᥕ⍴ᥲgᥱ</a> <img src=https://github.com/sournoxious/sournoxious/blob/ce6bd1a389a215857c5374449a43f0e8af87a2c2/cute.gif> <a href="https://pronouns.cc/@soursourstuff">⍴rᥒs.ᥴᥴ</a> </p>
