@@ -5,6 +5,8 @@
 <br>
 <p align="center"> $\color{#ffaca9}{You}$ $\color{#98c7aa}{think}$ $\color{#ffe68a}{Im}$ $\color{#ffaca9}{pretty}$ $\color{#98c7aa}{?}$
 <br>
+  -
+<br>
 $\color{#f7ede9}{Then}$ $\color{#f7ede9}{put}$ $\color{#f7ede9}{me}$ $\color{#f7ede9}{your}$ $\color{#f7ede9}{cart}$ $\color{#f7ede9}{!}$
 
 <p align="center"> <img src=https://github.com/sournoxious/sournoxious/blob/4ac921efbd6fa2f4acb5fd6cab62bbbe9d030a24/Untitled2637_20261028000032.PNG width="250">
