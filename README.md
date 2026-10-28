@@ -4,7 +4,7 @@
 
 <p align="center"> $\color{#ff8b9d}{Baby,}$ $\color{#52a4b0}{I}$ $\color{#ffe68a}{love}$ $\color{#ff8b9d}{the}$ $\color{#52a4b0}{way}$ $\color{#ffe68a}{you-}$
 <br>
-$\color{#yay}{glitter, glitter, glitter, glitter...}$
+$\color{#f0ffbc}{glitter, glitter, glitter, glitter}$
 
 <p align="center"> <img src=https://github.com/sournoxious/sournoxious/blob/4ac921efbd6fa2f4acb5fd6cab62bbbe9d030a24/Untitled2637_20261028000032.PNG width="250">
 
